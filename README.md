@@ -9,3 +9,5 @@
 
 ### Step 6
 
+<img width="463" height="71" alt="image" src="https://github.com/user-attachments/assets/ec30b9e2-d5c5-41ac-aac3-ea702ca130f6" />
+<img width="708" height="341" alt="image" src="https://github.com/user-attachments/assets/9a4b53ef-cf83-469b-89ed-51c7a854458b" />
